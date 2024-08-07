@@ -1,5 +1,5 @@
-this just here until i can have the energy to make my rentry but this is for byi , int , and dni.
-byi : i am a minor(5teen) and i am taken (im also polyamorous.) . I do make jokes that lean toward rude and sexual (lmk if you arent comfy w that or cant handle either of those.) my prns are he / vamp atm, pls no they/them. Im an irl vampire🩸(doesnt mean i THINK i really iam, i just love vampires and wna be one. 
+the image is a kaeya jumpscare . this just here until i can have the energy to make my rentry but this is for byi , int , and dni.
+byi : you can call me kaeya or beidou, i am a minor(5teen) and i am taken (im also polyamorous.) . I do make jokes that lean toward rude and sexual (lmk if you arent comfy w that or cant handle either of those.) my prns are he / vamp atm, pls no they/them. Im an irl vampire🩸(doesnt mean i THINK i really iam, i just love vampires and wna be one. i dont mind kaeya ships as long as theyre not problematic. 
 
 
 pls int i dont bite : genshin impact , horror game fans, roblox, mcr, ptv, korn, metallica, palaye royale, honkai star rail, ghost, pokemon, castlevania, chainsaw man, caseoh, 13-17. ill add more when i think of some
