@@ -1,1 +1,4 @@
-# readme
+this just here until i can have the energy to make my rentry but this is for byi , int , and dni.
+byi : i am a minor(5teen) and i am taken (im also polyamorous.) . I do make jokes that lean toward rude and sexual (lmk if you arent comfy w that or cant handle either of those.) my prns are he / vamp atm, pls no they/them. Im an irl vampire🩸(doesnt mean i THINK i really iam, i just love vampires and wna be one. 
+pls int i dont bite : genshin impact , horror game fans, roblox, mcr, ptv, korn, metallica, palaye royale, honkai star rail, ghost, pokemon, castlevania, chainsaw man, caseoh, 13-17. ill add more when i think of some
+DNI UGH : -12 and +18 , KAELUC (kaeya x diluc) SHIPPERS. THEYRE LITERALLY BROTHERS. people who call others emo for wearing black. (im an emo and seeing makes me weirded out.) PEOPLE WHO TALK ABT SH. pls guys trigger warning before speaking about it. same thing with disorders such as eating disorders, it triggers some people. tt/td people..no way you get bothered by your pixels being touched, im not saying people who have it irl dni, you guys are valid. problematic people. also basic dni crit. 
